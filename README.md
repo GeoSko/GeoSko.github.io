@@ -1,1 +1,0 @@
-# GeoSko.github.io
